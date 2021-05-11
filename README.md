@@ -1,2 +1,3 @@
 # Projeto-starbucks
-![[video-to-gif output image]](https://im7.ezgif.com/tmp/ezgif-7-e0b3f1517279.gif)
+![ezgif com-gif-maker star](https://user-images.githubusercontent.com/76717284/117879509-76e04f00-b27d-11eb-8b85-52ce8abcd96f.gif)
+
